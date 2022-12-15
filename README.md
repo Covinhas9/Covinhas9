@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Covinhas9
-- 👀 I’m interested in aprender mais
+- 👀 I’m interested in social media
 - 🌱 I’m currently learning compute science, marketing digital
 - 💞️ I’m looking to collaborate on El Cantare
 - 📫 How to reach me sorocitywebradio@gmail.com
